@@ -1,0 +1,1 @@
+My name is Faiza. Im starting this reporistory in 2024: before I’d found any success - so i can scroll back to see me trying to be a developer, the harsh realities of dropping out of high school, building one of the leading online advertising agencies, all the way through to me making $30m by the age of 23: I don’t want to hide anything.
